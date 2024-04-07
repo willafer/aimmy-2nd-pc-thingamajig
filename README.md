@@ -26,3 +26,5 @@ https://github.com/willafer/aimmy-2nd-pc-thingamajig/assets/112678364/d8e24ef0-5
 ps. you can use the steam stream thng for any game not just steam
 
 sorry for really short vid in pixel gun github no no like anything over 10mb
+
+btw plug mouse into pc with aimmy. plug keyboard into pc with game. and look at moniter with pc running game not aimmy
