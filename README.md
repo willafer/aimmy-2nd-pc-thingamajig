@@ -18,5 +18,11 @@ also ill just link a vid if your still confused
 
 https://github.com/willafer/aimmy-2nd-pc-thingamajig/assets/112678364/b9ad3966-6427-42ac-9aaa-6bda0ff3f722
 
+https://github.com/willafer/aimmy-2nd-pc-thingamajig/assets/112678364/d8e24ef0-555f-4654-9cea-d3b010716131
+
+
+
 
 ps. you can use the steam stream thng for any game not just steam
+
+sorry for really short vid in pixel gun github no no like anything over 10mb
