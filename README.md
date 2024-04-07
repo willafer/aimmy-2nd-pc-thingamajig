@@ -14,3 +14,7 @@ so go on steam on your pc you want aimmy on. aka the more power full one or your
 
 this should greatly ruduce the risk of gettin banned
 also ill just link a vid if your still confused
+
+
+https://github.com/willafer/aimmy-2nd-pc-thingamajig/assets/112678364/b9ad3966-6427-42ac-9aaa-6bda0ff3f722
+
