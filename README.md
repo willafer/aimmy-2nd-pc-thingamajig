@@ -13,3 +13,4 @@ so go on steam on your pc you want aimmy on. aka the more power full one or your
 
 
 this should greatly ruduce the risk of gettin banned
+also ill just link a vid if your still confused
