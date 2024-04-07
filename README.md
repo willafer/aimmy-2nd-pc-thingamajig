@@ -1,1 +1,15 @@
-f
+Alr so i havent done this before so sorry if its ass or hard to under stand.     btw you have to use wifi. and have fastish wifi
+
+step one get a ethernet cable and 2 computers. pls make sure they dont suck and can run a screen share AND aimmy
+step two connect the pcs together with the eathernet cable
+then go to network settings once your there click on change adapter options 
+right click on your wifi, go to propites then shareing
+check the little box that says allow other users to use this network
+now sign into the same steam acc on both pcs
+boom now you can stream the game from one pc to another with aimmy 
+so go on steam on your pc you want aimmy on. aka the more power full one or your main than press the litte down arrow on the game launch. and select the other pc
+
+
+
+
+this should greatly ruduce the risk of gettin banned
