@@ -18,3 +18,7 @@ also ill just link a vid if your still confused
 
 https://github.com/willafer/aimmy-2nd-pc-thingamajig/assets/112678364/b9ad3966-6427-42ac-9aaa-6bda0ff3f722
 
+
+
+
+HEY update if you want to do any non steam game use parsec https://parsec.app/downloads
